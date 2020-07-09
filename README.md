@@ -10,6 +10,6 @@ I think that Mental health is a serious problem right now and we need some serio
 
 Fortunately, I have been an Apple WWDC19 and 20 scholar! 
 
-I like to sip coffee! =) 
+I like to sip coffee! Also, indie rock music soothes me! =) 
 
 Hope you are able to debug your code today!
