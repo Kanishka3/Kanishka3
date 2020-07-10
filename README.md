@@ -8,7 +8,7 @@ Types of developments I can work with: iOS development, basic web development
 
 I think that Mental health is a serious problem right now and we need some serious solutions for that! 
 
-Fortunately, I have been an Apple WWDC19 and 20 scholar! 
+Fortunately, I have been a Apple WWDC19 and 20 scholar! 
 
 I like to sip coffee! Also, indie rock music soothes me! =) 
 
